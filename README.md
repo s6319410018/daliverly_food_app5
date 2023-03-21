@@ -1,4 +1,4 @@
-### Created BY : Pattarapong Ekeongsa
+### Created BY : Pattarapong Ekwongsa
 
 ### Complete Date : 21 / March /2023
 
